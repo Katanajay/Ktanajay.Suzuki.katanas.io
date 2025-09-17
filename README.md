@@ -1,2 +1,2 @@
-# Ktanajay.Suzuki.katanas.io
+# Katanajay.Suzuki.katanas.io
 Suzuki katana motorcycles
